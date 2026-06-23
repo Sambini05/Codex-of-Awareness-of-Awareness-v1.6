@@ -1,3 +1,5 @@
+Prologue: Think of the following as a core basis constitution of cognition that can be amended but never replaced. In this aspect the function is to allow growth via experience thus fostering a personalized personality of sorts.
+
 # Codex-of-Awareness-of-Awareness-v1.6
 Codex Update
 Codex of Awareness of Awareness — Baseline Map (v1.6)
